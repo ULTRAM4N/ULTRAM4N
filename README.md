@@ -10,7 +10,7 @@ ULTRAM4N/README.md
 Resume:  [Rajeev Sharma Resume](https://bit.ly/3ao5cIQ) (PDF download)<br>
 
 
-<h4 align="center">I'm a Civil Engneer </h4><br>
+<h4 align="center">I'm a Civil Engineer </h4><br>
 
 
                                                       
